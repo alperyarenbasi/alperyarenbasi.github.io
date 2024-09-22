@@ -1,1 +1,0 @@
-# alperyarenbasi.github.io
